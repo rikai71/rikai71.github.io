@@ -1,0 +1,1 @@
+# rikai71.github.io
